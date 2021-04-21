@@ -1,7 +1,7 @@
 ### Hi there, I'm [GuoYF!](https://GuoYFnice.github.io) 👋
 📫 How to reach me: 603776827@qq.com
 <br />
-:iphone: TEL: :one::three::six::five::eight::zero::four::two::one::one::eight:
+:iphone: TEL: 13658042118
 
 
 <a href="https://github.com/GuoYFnice">
